@@ -1,1 +1,2 @@
-me poor skid, claude coding for me thanks.
+### me poor skid, claude coding for me thanks.
+contact me on discord @imo.r3akeoneeeee
